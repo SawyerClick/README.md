@@ -5,4 +5,4 @@ I am a data viz developer at [The DataFace](https://thedataface.com/). I focus o
 
 **📮 [Let's chat](mailto:sawyer@hey.com)** journalism, data viz, early career advice, goth music, the significance of patricide in ancient Rome!
 
-<sub>*made with 🖤 in Dripping Springs, Texas*</sub>
+<sub>*made with 🖤 in Terrell, Texas*</sub>
